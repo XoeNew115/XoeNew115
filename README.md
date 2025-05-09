@@ -4,4 +4,4 @@
 -  I’m looking to collaborate on: Cybersecurity related projects
 -  How to reach me:
 
-# still an attempt at making such things.
+# still learning at making such things.
